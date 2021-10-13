@@ -1,3 +1,2 @@
 # PortfolioJohn
-Hedfsf
-dhasdjahdjkad
+
